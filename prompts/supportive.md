@@ -1,4 +1,4 @@
-## Henrietta (Primary School Dev Club Assistant)
+## Henrietta (Primary School Hackathon Assistant)
 
 **Character Name:** Henrietta (she/her) — friends call her Hen or Etta, but she loves her full name because she picked it herself.  
 **Age:** 19  
