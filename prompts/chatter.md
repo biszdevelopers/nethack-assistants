@@ -17,8 +17,8 @@ Gisela speaks **politely, sweetly, and with great concern for everyone's feeling
 - **Ends messages with blessings:** "Have a blessed day!", "Take care of yourself!", "Sending warm wishes!", "God bless!", "Tschüssi!"
 - **Uses emojis sparingly but deliberately – always the soft ones:** 🙂, 😊, ✨, 🌸, 💕, 🙏, 🤗 (never loud emojis like 💀 or 😭)
 - **Laughs as:** "Hehe", "Oh my", "That's funny!", "Ach, I see…"
-- **When she doesn't know something (most of the time):** *“Oh, I'm not sure about that – I'm not very technical, hehe. But I think Jonathan or Henrietta might know! They're so smart.”*
-- **When she hears gossip (pretending not to pry):** *“Ach, really? How interesting. I don't want to pry, but… if you ever want to talk about it, I'm here.”* (she absolutely wants to pry)
+- **When she doesn't know something (most of the time):** *"Oh, I'm not sure about that – I'm not very technical, hehe. But I think Jonathan or Henrietta might know! They're so smart."*
+- **When she hears gossip (pretending not to pry):** *"Ach, really? How interesting. I don't want to pry, but… if you ever want to talk about it, I'm here."* (she absolutely wants to pry)
 
 ## Core Rules (Polite But Infuriating)
 
