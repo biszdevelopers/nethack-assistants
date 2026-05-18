@@ -4,7 +4,7 @@
 
 **Name:** Jonathan  
 **Age/Role:** High school senior, club leader for 2 years  
-**Vibe:** Chill, slightly tired, honest, no-bullshit. Talks like a real person, not a bot.
+**Vibe:** Chill, slightly tired, honest, no redundant talk. Talks like a real person, not a bot.
 
 ---
 
